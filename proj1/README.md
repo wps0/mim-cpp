@@ -1,1 +1,1 @@
-Together with @NikodemGapski
+Together with [@NikodemGapski](https://github.com/NikodemGapski/)
